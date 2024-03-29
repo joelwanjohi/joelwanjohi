@@ -18,3 +18,7 @@ Welcome to my awesome project! If you have any questions or suggestions, feel fr
 
 - [LinkedIn](https://www.linkedin.com/in/joel-wanjohi-b11a59262?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - [𝕏](https://x.com/Devjoeli?t=9Ldynsf2JR-n25o2aKdapw&s=09)
+
+
+🔥 My Stats :
+
